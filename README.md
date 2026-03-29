@@ -1,4 +1,4 @@
-# AI-Powered Ticket Resolution Automation Project Video Links 
+# Ticket Resolution Automation Project Video Links 
 
 
 
